@@ -1,0 +1,1 @@
+Coloca aquí las imágenes de vista previa: word1.jpg ... canva20.jpg
